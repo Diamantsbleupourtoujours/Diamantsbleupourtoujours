@@ -1,5 +1,6 @@
 - 👋 Hi, I’m @Diamantsbleupourtoujours
-- 👀 I’m interested in ...make telling truth
+- 👀 I’m interested in ...make telling truth and  Do 
+méchoui
 - 🌱 I’m currently learning ...Magic and how to Exit a henvoutation
 - 💞️ I’m looking to collaborate on ...3 world pour toujours a jamais pour l'éternité et pour la vie
 - 📫 How to reach me ...514 968 9331 or emails et Joel.pell@protonmail.com
